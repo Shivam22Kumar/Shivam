@@ -1,0 +1,2 @@
+# Shivam
+I am a goal oriented person would use my all the abilities to achive my target. I am a forward person, i take into account only which work i have completed, which give me self motivation and confidence. I focus on deadline as well as proper working of projects. i have proved it at many times. I have good communication skills with effective leadership quality. I am very flexible and have the ability to work with accurately under difficult work conditions.
